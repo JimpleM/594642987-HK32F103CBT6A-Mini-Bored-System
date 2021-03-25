@@ -1,1 +1,0 @@
-# 594642987-HK32F103CBT6A-Mini-Bored-System
